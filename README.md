@@ -1,13 +1,4 @@
-### <div align="center">Daşqın Nağıyev;</div>  
-  
-
--  Hazırda açıq mənbə layihələri üzərində işləyirəm.  
-  
-
-- ❓ Android və Telegram botları haqqında suallar verə bilərsiz  
-  
-
-- Çox bekaram😂  
+### <div align="center">Daşqın Nağıyev;</div>
   
 
 
